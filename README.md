@@ -8,3 +8,8 @@ First 2 exercises done
 3 and 4 exercise done 
 
 <img width="1440" alt="image" src="https://github.com/user-attachments/assets/eb5e881b-ee3b-4e17-b971-527e069184d1">
+
+
+5 to 11 exercises done
+
+<img width="1197" alt="image" src="https://github.com/user-attachments/assets/17f6e252-06e3-4a74-b245-af8341845de7">
