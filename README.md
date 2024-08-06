@@ -18,3 +18,8 @@ First 2 exercises done
 12 to 15 done
 
 <img width="1197" alt="image" src="https://github.com/user-attachments/assets/3ab5351b-dd4f-4be6-a61f-8fb1415514a9">
+
+
+SQL BOLT COMPLETED! YAYYYY !!!!!!
+
+<img width="1197" alt="image" src="https://github.com/user-attachments/assets/bf9fb531-ae31-4feb-be1b-c33dc06ddce5">
