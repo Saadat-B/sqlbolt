@@ -13,3 +13,8 @@ First 2 exercises done
 5 to 11 exercises done
 
 <img width="1197" alt="image" src="https://github.com/user-attachments/assets/17f6e252-06e3-4a74-b245-af8341845de7">
+
+
+12 to 15 done
+
+<img width="1197" alt="image" src="https://github.com/user-attachments/assets/3ab5351b-dd4f-4be6-a61f-8fb1415514a9">
