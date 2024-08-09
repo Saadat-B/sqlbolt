@@ -23,3 +23,6 @@ First 2 exercises done
 SQL BOLT COMPLETED! YAY!1
 
 <img width="1197" alt="image" src="https://github.com/user-attachments/assets/bf9fb531-ae31-4feb-be1b-c33dc06ddce5">
+
+
+start sql course
